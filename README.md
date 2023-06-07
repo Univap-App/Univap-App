@@ -1,0 +1,1 @@
+- Perfil destinado à projetos de desenvolvimento pertinentes para o uso e melhoria do convívio dentro dos campus da Universidade do Vale do Paraíba.
